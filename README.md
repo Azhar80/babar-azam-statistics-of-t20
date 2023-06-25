@@ -1,4 +1,4 @@
-# babar-azam-statistics-of-t20
+# babar-azam-statistics-in-t20
 Babar Azam T20 Statistics Report:
 
 Babar Azam, one of the prominent cricketers in the T20 format, has shown remarkable performance throughout his career. Analyzing his T20 statistics reveals some impressive numbers.
